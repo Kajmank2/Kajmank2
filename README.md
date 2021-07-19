@@ -5,3 +5,4 @@
 - 📫 How to reach me testowye0@gmail.com
 
 https://www.codewars.com/users/Kajmank2
+https://www.sololearn.com/profile/13503672/
