@@ -5,4 +5,4 @@
 
 - https://www.linkedin.com/in/karol-k-701517193/
 - https://www.codewars.com/users/Kajmank2
-- https://www.sololearn.com/profile/13503672/
+
